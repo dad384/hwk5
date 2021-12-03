@@ -4,3 +4,9 @@
 ###### The hardest is merge sort
 ## liscenced under creative commons
 pull requested
+=======
+ **10/10 would reccomend**
+ ** - Justin **
+ 1. Great Personality
+    - Great Beard
+        - Great Cooking
